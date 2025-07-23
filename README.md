@@ -1,2 +1,0 @@
-# kizero
-no bio yet
